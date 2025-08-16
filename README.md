@@ -75,8 +75,11 @@ End of World: https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.thewrap.com%
 
 Themes: https://www.pcgamer.com/games/fallout/original-fallout-co-creator-tim-cain-says-critique-of-capitalism-was-never-the-point-of-the-games-and-if-anything-theyre-about-how-war-is-inevitable-given-basic-human-nature/
 
+ZAX: https://fallout.fandom.com/wiki/ZAX
 
 Videos
+
+Ben-Hur Theatrical Trailer | THX1968: https://www.youtube.com/watch?v=SCJfUi3V3r4&t=41s
 
 Too bad you will die | robohobosam: https://www.youtube.com/watch?v=NHCDfxOo_D4
 
